@@ -1,0 +1,104 @@
+# LISA – Dream
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I've been thinking
+That I got no idea
+What you're thinking
+Are you happy?
+Are you sad?
+Are you always gonna hate me
+For that night in Tokyo?
+When it ended
+I kinda hoped
+That it'd be open-ended
+But you never looked back
+Well, I guess
+You can't hold onto something
+Once you let it go
+But, I know a place
+Where we can be us
+I know it ain't real
+But, it's real enough
+From sun going down
+To sun coming up
+It's like you're here with me
+Whenever I close my eyes
+It's taking me back in time
+Been drowning in dreams
+Lately
+Like it's 2019, baby
+Whenever I'm missing you
+Call you up
+But, I can't get through
+Don't know where you sleep
+Lately
+But, I'll see you
+In my dreams, maybe
+We can catch up
+Drive down our old street
+If all that we were
+Is all that we'll ever be
+It's bittersweet
+At least a girl can dream
+I guess that I'm taking
+What I can get
+'Cause I don't get
+Nothing new from your friends
+If you got
+The harder side of the break
+Then why
+Is it harder for me to take?
+There's so much
+I might never get to say, ay
+But, I know a place
+Where we can be us
+I know it ain't real
+But, it's real enough
+From sun going down
+To sun coming up
+It's like you're here with me
+Whenever I close my eyes
+It's taking me back in time
+Been drowning in dreams
+Lately
+Like it's 2019, baby
+Whenever I'm missing you
+Call you up
+But, I can't get through
+Don't know where you sleep
+Lately
+But, I'll see you
+In my dreams, maybe
+We can catch up
+Drive down our old street
+If all that we were
+Is all that we'll ever be
+It's bittersweet
+At least a girl can dream
+I know it's only in my mind
+Playin' three nights on the stereo
+Like a movie scene, DiCaprio
+Oh, I put my makeup on
+Just to fall asleep
+It's like you're here with me
+Whenever I close my eyes
+It's taking me back in time
+Been drowning in dreams
+Lately
+Like it's 2019, baby
+Whenever I'm missing you
+Call you up
+But, I can't get through
+Don't know where you sleep
+Lately
+But, I'll see you
+In my dreams, maybe
+We can catch up
+Drive down our old street
+If all that we were
+Is all that we'll never be
+It's bittersweet
+Can we be friends at least?
+```
